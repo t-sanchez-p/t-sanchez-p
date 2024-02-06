@@ -1,0 +1,1 @@
+Currently working on condensing my knowledge into free e-learning content. I might jump into udemy also who knows... Oh! And also coding my own alternative to Hootsuite, I will start massively posting content when both things are ready 🥳 Excited already
